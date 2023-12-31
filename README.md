@@ -1,3 +1,3 @@
 # RANDOM STUFF AND EXERCISES
 
-FEEL FREE TO USE THEM
+You are free to use what you want
